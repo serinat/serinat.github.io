@@ -1,1 +1,0 @@
-# serinat.github.io
